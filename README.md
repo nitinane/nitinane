@@ -7,6 +7,8 @@
 💞️ My curiosity drives me to push through challenges, and I’m eager to start freelancing and collaborate on exciting projects
 
 📫 How to reach me: LinkedIn - Nitin Madanala
+
+Looking for people with similar intrests to start building and expanding skils.
 <!---
 nitinane/nitinane is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
